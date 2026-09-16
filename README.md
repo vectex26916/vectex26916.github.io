@@ -1,1 +1,0 @@
-# vectex26916.github.io
